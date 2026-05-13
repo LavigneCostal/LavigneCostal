@@ -1,6 +1,6 @@
 # Olá 👋, eu sou Lavigne Costal
 
-🚀 **Desenvolvedora de Softwer Júnior**
+🚀 **Desenvolvedora de Software Júnior**
 
 🛠️ **Estudante de HTML pela Cisco**
 
