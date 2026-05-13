@@ -2,7 +2,7 @@
 
 🚀 **Desenvolvedora de Softwer Júnior**
 
-💻 **Estudante de HTML pela Cisco**
+🛠️ **Estudante de HTML pela Cisco**
 
 
 
